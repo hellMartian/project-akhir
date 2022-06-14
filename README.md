@@ -1,1 +1,1 @@
-LINK PPT : https://docs.google.com/presentation/d/1Ylv9ogvqJ4xda5BLDWzd0qCAZUvZBDIQQQwnuKH90bo/edit?usp=sharing
+LINK GDRIVE : https://drive.google.com/drive/folders/149IaBx71anQ4cv_1789PoYjw5aRd2syi?usp=sharing
